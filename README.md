@@ -1,0 +1,1 @@
+Alright the deal is all about football money booster how u can boost ur football balance the money is withdrawable e.g If you have 3k in ur football account you can boost it to get 300k what matters most is the accessory  link if you are ready I can help u with the link but u are to give me 30% after u get the money on your private account deal ok
